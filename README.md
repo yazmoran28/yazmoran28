@@ -1,4 +1,4 @@
-### Hi there 👋, Hello, my name is Yazmin
+### Hi there 👋 my name is Yazmin Moran
 #### I am a business student at Harper College
 ![I am a business student at Harper College](https://github.com/yazmoran28/yazmoran28/blob/main/IMG_9598.jpg)
 
